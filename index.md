@@ -12,7 +12,7 @@ I would probably try to make another page decidated to blogging. I don't know ye
 
 Anyway, welcome to my journey!
 
-Feel free to [contact me](contact@hekj.eu).
+Feel free to [contact me](mail:contact@hekj.eu).
 
 
 
